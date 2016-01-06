@@ -1,2 +1,3 @@
 # SpringField
-I am Alpha and Omega, the beginning and the end
+Vodka... is a luxury we have.
+Time is not. 
